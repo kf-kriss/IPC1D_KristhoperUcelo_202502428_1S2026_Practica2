@@ -1,0 +1,1 @@
+# IPC1D_KristhoperUcelo_202502428_1S2026_Practica2
